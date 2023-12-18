@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @player3344
+- 👀 I’m interested in C++/HTML/Unity/And others
+- 🌱 I’m currently learning Nothing
+- 💞️ I’m looking to collaborate on Nothing
+- 📫 How to reach me, Discord: player3344#8219
