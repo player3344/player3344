@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @player3344
 - 👀 I’m interested in C++/HTML/Unity/And others
-- 🌱 I’m currently learning how to perfect python syntax
+- 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me, Discord: player3344#8219
