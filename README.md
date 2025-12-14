@@ -3,3 +3,20 @@
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me, Discord: player3344#8219
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+... Yeah not much here
